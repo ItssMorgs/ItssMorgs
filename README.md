@@ -1,16 +1,30 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**ItssMorgs/ItssMorgs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+────── ✿ ──────
 
-Here are some ideas to get you started:
+# Hi, I'm Morgs 🌷
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="./books.jpg" width="700">
+
+*Welcome to my profile!*
+
+♡ 19 years old  
+♡ Turning 20 in March 2027
+
+✧ Preparing for university 📚✨
+✧ Loves playing games 🎮
+✧ Loves reading 📚
+✧ Gym enjoyer 🏋️‍♀️
+✧ Anime & manga enjoyer ✨
+
+♡ I'm in a lot of fandoms, but I'll likely interact if you're from:
+
+❤︎ Oshi no Ko  
+❤︎ Spy × Family  
+❤︎ Demon Slayer
+
+💌 Feel free to interact, though I may be AFK sometimes.
+
+────── ✿ ──────
+
+</div>
