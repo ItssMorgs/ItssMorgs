@@ -17,7 +17,7 @@
 ✧ Gym enjoyer 🏋️‍♀️
 ✧ Anime & manga enjoyer ✨
 
-♡ I'm in a lot of fandoms, but I'll likely interact if you're from:
+ღ I'm in a lot of fandoms, but I'll likely interact if you're from:
 
 ❤︎ Oshi no Ko  
 ❤︎ Spy × Family  
