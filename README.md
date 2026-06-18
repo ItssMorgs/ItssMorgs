@@ -23,8 +23,7 @@
 
 ❤︎ Oshi no Ko  
 ❤︎ Spy × Family  
-❤︎ Demon Slayer
-
+❤︎ Demon Slayer  
 ❤︎ Chainsaw Man
 
 💌 Feel free to interact, though I may be AFK sometimes.
