@@ -24,8 +24,8 @@
 ❤︎ Oshi no Ko  
 ❤︎ Spy × Family  
 ❤︎ Demon Slayer  
-❤︎ Tbhk         
-❤︎ Chainsaw Man  
+❤︎ Chainsaw Man      
+❤︎ Tbhk   
 
 💌 Feel free to interact, though I may be AFK sometimes.
 
