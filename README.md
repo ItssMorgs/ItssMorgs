@@ -25,7 +25,7 @@
 ❤︎ Spy × Family  
 ❤︎ Demon Slayer  
 ❤︎ Chainsaw Man      
-❤︎ Tbhk   
+❤︎ Toilet-bound Hanako-kun  
 
 💌 Feel free to interact, though I may be AFK sometimes.
 
