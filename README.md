@@ -4,7 +4,7 @@
 
 # Hi, I'm Morgs 🌷
 
-![image alt](https://github.com/ItssMorgs/ItssMorgs/blob/f5b06ba321fa325f441e7007de87637181d9b886/quality_restoration_20260618162044289.jpeg)
+![image alt](https://github.com/ItssMorgs/ItssMorgs/blob/20ba83c286b2a30a930f646deeaeb45e5598ae93/quality_restoration_20260624231708380.jpg)
 
 *Welcome to my profile!*
 
