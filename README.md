@@ -17,7 +17,7 @@
 ✧ Gym enjoyer 🏋️‍♀️
 ✧ Anime & manga enjoyer ✨
 
-![image alt](https://github.com/ItssMorgs/ItssMorgs/blob/77d2752dab8ef42c5799bdd88aed15ffcc559e0f/cat.gif)
+![image alt](https://github.com/ItssMorgs/ItssMorgs/blob/1fef7140535cf23c58bcbb54a518dd325e330258/Sparkles.gif)
 
 ღ I'm in a lot of fandoms, but I'll likely interact if you're from:
 
