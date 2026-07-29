@@ -9,7 +9,6 @@
 *Welcome to my profile!*
 
 ♡ 9Teen years old  
-♡ Turning 20 in March 2027
 
 ✧ Preparing for university 📚✨
 ✧ Loves playing games 🎮
