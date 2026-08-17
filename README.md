@@ -8,7 +8,7 @@
 
 *Welcome to my profile!*
 
-♡ 9Teen years old  
+♡ 9Teen  
 
 ✧ Preparing for university 📚✨
 ✧ Loves playing games 🎮
